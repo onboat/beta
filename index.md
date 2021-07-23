@@ -1,3 +1,3 @@
-## Welcome to On Boat
+## Welcome on Boat
 
 Saling ...
